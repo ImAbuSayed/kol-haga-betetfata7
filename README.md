@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> لمسة يديك تشعل النيران
+> في سكون الليل يذوب المكان
+> نظرة عيونك تسحر القلوب
+> بين أحضانك أريد أن أذوب
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
